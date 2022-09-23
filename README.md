@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any fun & interesting projects !
 - 📫 How to reach me at [ja.ortiz@uniandes.edu.co](mailto:ja.ortiz@uniandes.edu.co)
 
-Also, take a look at [my LinkedIn profile](https://www.linkedin.com/in/jorge-alejandro-ortiz/) if you would like to learn more about me!
+Also, take a look at [my LinkedIn profile](https://bit.ly/Alejandro_in) if you would like to learn more about me!
 
 <!---
 ja-ortiz-uniandes/ja-ortiz-uniandes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
