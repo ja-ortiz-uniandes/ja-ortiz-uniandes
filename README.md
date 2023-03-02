@@ -2,7 +2,7 @@
 - 👀 I’m interested in a lot of thing but specially in __economics__ !!
 - 🌱 I’m currently learning French !
 - 💞️ I’m looking to collaborate on any fun & interesting projects !
-- 📫 How to reach me at [ja.ortiz@uniandes.edu.co](mailto:ja.ortiz@uniandes.edu.co)
+- 📫 How to reach me: [ja.ortiz@uniandes.edu.co](mailto:ja.ortiz@uniandes.edu.co)
 
 Also, take a look at [my LinkedIn profile](https://bit.ly/Alejandro_in) if you would like to learn more about me!
 
